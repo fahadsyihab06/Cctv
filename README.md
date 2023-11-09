@@ -40,7 +40,7 @@ Tutorialnya di yt klik link di bawah
 SCRIPT 100% AMAN DAN WORK 
 - hasil
 
-
-![](https://github.com/fahadsyihab06/spam-wa/Screenshot_2023-10-22-11-05-57-14.png)
+![screenshoot_2023-11-09-22-10-36-57]( {https://ibb.co/ZBJm7qP
+} )
 
               
