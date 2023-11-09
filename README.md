@@ -40,7 +40,7 @@ Tutorialnya di yt klik link di bawah
 SCRIPT 100% AMAN DAN WORK 
 - hasil
 
-<img src="https://ibb.co/ZBJm7qP .png " lebar="300">
+<img src="https://ibb.co/ZBJm7qP" lebar="300">
 
 
               
