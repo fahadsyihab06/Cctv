@@ -40,7 +40,5 @@ Tutorialnya di yt klik link di bawah
 SCRIPT 100% AMAN DAN WORK 
 - hasil
 
-![screenshoot_2023-11-09-22-10-36-57]( {https://ibb.co/ZBJm7qP
-} )
 
               
