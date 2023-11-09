@@ -40,7 +40,7 @@ Tutorialnya di yt klik link di bawah
 SCRIPT 100% AMAN DAN WORK 
 - hasil
 
-<img src="https://ibb.co/ZBJm7qP" lebar="300">
+<a href="https://ibb.co/ZBJm7qP"><img src="https://i.ibb.co/GWJTNzL/Screenshot-2023-11-09-22-10-36-57.png" alt="Screenshot-2023-11-09-22-10-36-57" border="0"></a>
 
 
               
